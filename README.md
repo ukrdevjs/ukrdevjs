@@ -1,5 +1,5 @@
 <h1 align="center">Hi there👋</h1>
-<h3 align="center">🚀 Senior Web & Mobile Developer | 6+ Years of Experience </h3>
+<h3 align="center">🚀 Senior Web & Mobile Developer | 5+ Years of Experience </h3>
 
 ---
 
