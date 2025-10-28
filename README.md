@@ -3,7 +3,7 @@
 
 ---
 
-💡 I’m a results-driven full-stack developer with 6+ years of experience in building scalable web and mobile applications. I’ve partnered with both startups and established companies to deliver high-performing digital products using modern technologies.
+💡 I’m a results-driven full-stack developer with 5+ years of experience in building scalable web and mobile applications. I’ve partnered with both startups and established companies to deliver high-performing digital products using modern technologies.
 
 ---
 
