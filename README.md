@@ -85,7 +85,7 @@
 
 ## ☕ Let’s Connect
 
-**Upwork:** [Freelancer](https://www.upwork.com/freelancers/~01992dea9449281e4c)
+**Upwork:** [Freelancer](https://www.upwork.com/freelancers/~019669f06fb76cedb6)
 
 ---
 
